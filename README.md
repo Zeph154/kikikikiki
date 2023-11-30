@@ -1,2 +1,0 @@
-# kikikikiki
-SEDAP PUNYA O
